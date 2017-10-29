@@ -42,15 +42,34 @@ How is your poetry coming? Did you ever finish the poem you started? The one you
 > - like scattered jewels
 > - remnants of
 > - us
-> -
+> - 
 > - Restless distraction
-> - Through the hot and misty air: 
-> - Gone, gone, sold and gone
-> - To the rice swamp dank and lone,
-> - From Virginia hills and waters—
-> - Woe is me, my stolen daughters!
+> - pulls my eyes from pages 
+> - whose inky words
+> - seem remote
+> - and unconnected.
+> - My mind arranges them
+> - into phrases
+> - you have spoken.
+> - 
+> - In a crowd
+> - of unfamiliar faces
+> - your thought gaze
+> - comes from
+> - every pair of eyes.
+> - 
+> - The memory of you
+> - has transformed my world.
 {:.poetry}
 
+
+You like?
+
+Please write...
+
+Much love,
+
+Gladys
 ---
 
 
