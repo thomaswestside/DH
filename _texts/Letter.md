@@ -1,9 +1,9 @@
 ---
 layout: narrative
 title: David Thomas Correspondence 1975 -1979
-author: 
+author: Various friends of varying intimacies
 editor: David Thomas
-rights: Public Domain
+rights: 
 source: Personal Collection
 publication-date: 2017
 toc:
@@ -16,9 +16,12 @@ toc:
 
 
 
----
+## Letter One - Gladys Chu, 23 July 76
 
-## Letter One
+23 July 76
+David dear
+{:.indent-4}COGRATULATIONS
+{:.indent-4}Thank you for calling to tell me - you deserved the Honors in Chinese and History - you know that.
 
 In the month of August, 1841, I attended an anti-slavery convention in Nantucket, at which it was my happiness to become acquainted with *Frederick Douglass*, the writer of the following Narrative. He was a stranger to nearly every member of that body; but, having recently made his escape from the southern prison-house of bondage, and feeling his curiosity excited to ascertain the principles and measures of the abolitionists,—of whom he had heard a somewhat vague description while he was a slave,—he was induced to give his attendance, on the occasion alluded to, though at that time a resident in New Bedford.
 
@@ -31,7 +34,19 @@ A beloved friend from New Bedford prevailed on *Mr. Douglass* to address the con
 It was at once deeply impressed upon my mind, that, if *Mr. Douglass* could be persuaded to consecrate his time and talents to the promotion of the anti-slavery enterprise, a powerful impetus would be given to it, and a stunning blow at the same time inflicted on northern prejudice against a colored complexion. I therefore endeavored to instil hope and courage into his mind, in order that he might dare to engage in a vocation so anomalous and responsible for a person in his situation; and I was seconded in this effort by warm-hearted friends, especially by the late General Agent of the Massachusetts Anti-Slavery Society, *Mr. John A. Collins*, whose judgment in this instance entirely coincided with my own. At first, he could give no encouragement; with unfeigned diffidence, he expressed his conviction that he was not adequate to the performance of so great a task; the path marked out was wholly an untrodden one; he was sincerely apprehensive that he should do more harm than good. After much deliberation, however, he consented to make a trial; and ever since that period, he has acted as a lecturing agent, under the auspices either of the American or the Massachusetts Anti-Slavery Society. In labors he has been most abundant; and his success in combating prejudice, in gaining proselytes, in agitating the public mind, has far surpassed the most sanguine expectations that were raised at the commencement of his brilliant career. He has borne himself with gentleness and meekness, yet with true manliness of character. As a public speaker, he excels in pathos, wit, comparison, imitation, strength of reasoning, and fluency of language. There is in him that union of head and heart, which is indispensable to an enlightenment of the heads and a winning of the hearts of others. May his strength continue to be equal to his day! May he continue to "grow in grace, and in the knowledge of God," that he may be increasingly serviceable in the cause of bleeding humanity, whether at home or abroad! 
 
 
-
+> - Gone, gone, sold and gone
+> - To the rice swamp dank and lone,
+> - Where the slave-whip ceaseless swings,
+> - Where the noisome insect stings,
+> - Where the fever-demon strews
+> - Poison with the falling dews,
+> - Where the sickly sunbeams glare
+> - Through the hot and misty air: 
+> - Gone, gone, sold and gone
+> - To the rice swamp dank and lone,
+> - From Virginia hills and waters—
+> - Woe is me, my stolen daughters!
+{:.poetry}
 
 ---
 
