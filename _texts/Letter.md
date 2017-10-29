@@ -21,9 +21,9 @@ toc:
 23 July 76
 David dear
 
-*CONGRATULATIONS!!!
+    CONGRATULATIONS!!!
 
-*Thank you for calling to tell me - you deserved the Honors in Chinese and History - you know that.  I'm glad and relieved that you are all settled (for the coming year at least) and that you are happy and satisfied and hopeful. No more problems, right? Let's make it a good year.
+    Thank you for calling to tell me - you deserved the Honors in Chinese and History - you know that.  I'm glad and relieved that you are all settled (for the coming year at least) and that you are happy and satisfied and hopeful. No more problems, right? Let's make it a good year.
 Forgive me for my stubborn fears and demands. I have been trying to blot out my feelings about you in order to let other thoughts  (non-emotional, rational, objective thoughts) have a chance to get through. I guess that's why I have been so confusing & contradictory. But my feelings about you are still strong - despite what you may think, I miss being with you, talking with you, sharing... In the month of August, 1841, I attended an anti-slavery convention in Nantucket, at which it was my happiness to become acquainted with *Frederick Douglass*, the writer of the following Narrative. He was a stranger to nearly every member of that body; but, having recently made his escape from the southern prison-house of bondage, and feeling his curiosity excited to ascertain the principles and measures of the abolitionists,—of whom he had heard a somewhat vague description while he was a slave,—he was induced to give his attendance, on the occasion alluded to, though at that time a resident in New Bedford.
 
 
