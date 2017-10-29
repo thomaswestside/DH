@@ -19,9 +19,13 @@ toc:
 ## Letter One - Gladys Chu, 23 July 76
 
 23 July 76
+
 David dear
->CONGRATULATIONS
->Thank you for calling to tell me - you deserved the Honors in Chinese and History - you know that.
+
+	CONGRATULATIONS!!!
+
+	Thank you for calling to tell me - you deserved the Honors in Chinese and History - you know that.  I'm glad and relieved that you are all settled (for the coming year at least) and that you are happy and satisfied and hopeful. No more problems, right? Let's make it a good year.
+	
 
 In the month of August, 1841, I attended an anti-slavery convention in Nantucket, at which it was my happiness to become acquainted with *Frederick Douglass*, the writer of the following Narrative. He was a stranger to nearly every member of that body; but, having recently made his escape from the southern prison-house of bondage, and feeling his curiosity excited to ascertain the principles and measures of the abolitionists,—of whom he had heard a somewhat vague description while he was a slave,—he was induced to give his attendance, on the occasion alluded to, though at that time a resident in New Bedford.
 
