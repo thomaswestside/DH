@@ -42,7 +42,7 @@ How is your poetry coming? Did you ever finish the poem you started? The one you
 > - like scattered jewels
 > - remnants of
 > - us
-> - 
+> ^
 > - Restless distraction
 > - pulls my eyes from pages 
 > - whose inky words
@@ -51,13 +51,13 @@ How is your poetry coming? Did you ever finish the poem you started? The one you
 > - My mind arranges them
 > - into phrases
 > - you have spoken.
-> - 
+> ^
 > - In a crowd
 > - of unfamiliar faces
 > - your thought gaze
 > - comes from
 > - every pair of eyes.
-> - 
+> ^ 
 > - The memory of you
 > - has transformed my world.
 {:.poetry}
