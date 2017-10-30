@@ -30,7 +30,7 @@ David dear...
 
  &#22909;&#19981;&#22909;
 
-How is your poetry coming? Did you ever finish the poem you started? The one you read me part of? here's one I wrote, in the space of time when everything had gone to shreds between us<sup><a href="#fn4" id="ref4">\*</a></sup> - (crossout) right after that awful argument we had. Missing spurs art, no? 
+How is your poetry coming? Did you ever finish the poem you started? The one you read me part of? here's one I wrote, in the space of time when everything had gone to shreds between us<sup><a href="#fn4" id="ref4">\*</a></sup> - ~sample text~ right after that awful argument we had. Missing spurs art, no? 
 
 
 > - Bits of ice
