@@ -26,7 +26,7 @@ David dear...
 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Thank you for calling to tell me - you deserved the Honors<sup><a href="#fn1" id="ref1">\*</a></sup>  in Chinese and History - you know that.  I'm glad and relieved that you are all settled (for the coming year at least) and that you are happy and satisfied and hopeful. No more problems, right? Let's make it a good year.
 
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Forgive me for my stubborn fears and demands. I have been trying to blot out my feelings about you in order to let other thoughts  (non-emotional, rational, objective thoughts) have a chance to get through. I guess that's why I have been so confusing & contradictory. But my feelings about you are still strong - despite what you may think, I miss being with you, talking with you, sharing... On paper, this all sounds so corny - writing is always such a struggle for me. Let me just say that, if you still want to, let's get together sometime before you go back home if we can, o.k.? I would like to very much.  The August schedule should be posted pretty soon - I'll let you know how things stand with that. When are you leaving New Haven? Let me know what you think of this... if you have had any second thoughts & feel you don't want to see me till Sept; fine.
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Forgive me for my stubborn fears and demands. I have been trying to blot out my feelings about you in order to let other thoughts  (non-emotional, rational, objective thoughts) have a chance to get through<sup><a href="#fn2" id="ref2">\*</a></sup> . I guess that's why I have been so confusing & contradictory. But my feelings about you are still strong - despite what you may think, I miss being with you, talking with you, sharing... On paper, this all sounds so corny - writing is always such a struggle for me. Let me just say that, if you still want to, let's get together sometime before you go back home if we can, o.k.? I would like to very much.  The August schedule should be posted pretty soon - I'll let you know how things stand with that. When are you leaving New Haven? Let me know what you think of this... if you have had any second thoughts & feel you don't want to see me till Sept; fine.
 
  &#22909;&#19981;&#22909;
 
@@ -83,7 +83,7 @@ Footnotes by David Thomas
 
 <sup id="fn1">*</sup> The grade in my courses during the first year dictated whether or not my scholarship would be renewed.  This anxiety caused many arguments between us as Gladys was not a financial aid recipient. [&#x21a9;&#xfe0e;](#ref1)
 
-<sup id="fn2">*</sup> She was free. [&#x21a9;&#xfe0e;](#ref2)
+<sup id="fn2">*</sup> Gladys frequently felt that it was important to fully experience her time at Yale, which meant that she frequently felt that I was monopolizing her time. [&#x21a9;&#xfe0e;](#ref2)
 
 <sup id="fn3">*</sup> I had changed my name from Frederick Bailey to that of Johnson. [&#x21a9;&#xfe0e;](#ref3)
 
