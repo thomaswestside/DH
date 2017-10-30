@@ -19,7 +19,8 @@ toc:
 ## Letter One - Gladys Chu, 23 July 76
 
 23 July 76
-David dear
+
+David dear...
 
 CONGRATULATIONS!!!
 
