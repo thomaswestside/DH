@@ -22,11 +22,11 @@ toc:
 
 David dear...
 
-CONGRATULATIONS!!!
+&nbsp;CONGRATULATIONS!!!
 
-Thank you for calling to tell me - you deserved the Honors in Chinese and History - you know that.  I'm glad and relieved that you are all settled (for the coming year at least) and that you are happy and satisfied and hopeful. No more problems, right? Let's make it a good year.
+&nbsp;Thank you for calling to tell me - you deserved the Honors in Chinese and History - you know that.  I'm glad and relieved that you are all settled (for the coming year at least) and that you are happy and satisfied and hopeful. No more problems, right? Let's make it a good year.
 
-Forgive me for my stubborn fears and demands. I have been trying to blot out my feelings about you in order to let other thoughts  (non-emotional, rational, objective thoughts) have a chance to get through. I guess that's why I have been so confusing & contradictory. But my feelings about you are still strong - despite what you may think, I miss being with you, talking with you, sharing... On paper, this all sounds so corny - writing is always such a struggle for me. Let me just say that, if you still want to, let's get together sometime before you go back home if we can, o.k.? I would like to very much.  The August schedule should be posted pretty soon - I'll let you know how things stand with that. When are you leaving New Haven? Let me know what you think of this... if you have had any second thoughts & feel you don't want to see me till Sept; fine.
+&nbsp;Forgive me for my stubborn fears and demands. I have been trying to blot out my feelings about you in order to let other thoughts  (non-emotional, rational, objective thoughts) have a chance to get through. I guess that's why I have been so confusing & contradictory. But my feelings about you are still strong - despite what you may think, I miss being with you, talking with you, sharing... On paper, this all sounds so corny - writing is always such a struggle for me. Let me just say that, if you still want to, let's get together sometime before you go back home if we can, o.k.? I would like to very much.  The August schedule should be posted pretty soon - I'll let you know how things stand with that. When are you leaving New Haven? Let me know what you think of this... if you have had any second thoughts & feel you don't want to see me till Sept; fine.
 
  &#22909;&#19981;&#22909;
 
