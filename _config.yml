@@ -5,7 +5,7 @@ title:               David
 tagline:             'a jekyll theme for minimal editions'
 description:         'Ed is a Jekyll theme designed for textual editors based on minimal computing principles, and focused on legibility and flexibility.'
 url:                 'https://github.com/thomaswestside/DH.git'
-baseurl:             '/DH'
+baseurl:             '/master'
 
 # About/contact
 author:
